@@ -1,0 +1,2 @@
+# FirstCompetition_Xcpc
+可能我命运的生锈齿轮会开始转动
